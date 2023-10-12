@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **smitbhuvaoo14@gmail.com**
 
-- ⚡tamtamari okat ma rejo 
+- ⚡**I am funny😊**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
